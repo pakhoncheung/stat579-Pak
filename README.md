@@ -2,4 +2,4 @@
 ## Pak Hon Cheung
 - travel, study, gym
 - strength of material
-- excel, JMP
+- excel, JMP, SAS

@@ -6,3 +6,7 @@
 - excel, JMP, SAS
 
 Hi Eric, this is Rebecca. 
+
+
+Good Good Study!
+Day Day Up!

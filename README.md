@@ -9,4 +9,8 @@ Hi Eric, this is Rebecca.
 
 
 Good Good Study!
+
 Day Day Up!
+
+
+You look great today! <3
